@@ -22,9 +22,8 @@ eleventyNavigation:
 
 **Resources**
 
-- [Get 10% trading discount with Binance](https://www.binance.com/en/register?ref=QAKCNSFH)
-- [Join Celsius Network and get $50 in BTC - 192860ce29](https://celsiusnetwork.app.link/192860ce29)
-
+- [Get 10% trading discount with Binance](https://accounts.binance.com/en/register?ref=OC76BXJD)
+- [Get 10.5% on USDT,USDC and DAi deposit](hodlnaut.com/join/nrMtk6hRZ) 
   
 **Giveaways**
 
