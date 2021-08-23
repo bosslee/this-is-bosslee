@@ -25,7 +25,7 @@ I use Binance and Kucoin
 - [Fastest way to get UST, AVAX is with Kucoin](https://www.kucoin.com/ucenter/signup?rcode=rJXNXAW)
 
 **Park and earn passive income?**
-I park in Bitcoin in Hodlnaut
+I park my Bitcoin in Hodlnaut
 - [Get 7% on Bitcoin deposit](hodlnaut.com/join/nrMtk6hRZ)
 
 **Resources**
