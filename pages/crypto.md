@@ -12,9 +12,9 @@ Hosehbo! If you land on this page. Likely you are coming in from Google, Tiktok 
 
 **Quick Intro**
 I make crypto investing videos on Tiktok and YouTube
-- [YouTube](https://www.youtube.com/channel/UCYZEakRmAdZ_NRpnW0RzPVQ?app=desktop&sub_confirmation=1): Detail video reviews on crypto investing. 
+- [YouTube](https://www.youtube.com/channel/UCYZEakRmAdZ_NRpnW0RzPVQ?app=desktop&sub_confirmation=1): Detail video reviews on crypto investing
 - [Tiktok](https://www.tiktok.com/@bossleelah?): Sharing my journey on crypto investing 
-- [Your underground crypto radio](https://t.me/cryptowithbosslee)
+- [Telegram Channel](https://t.me/cryptowithbosslee): Your underground crypto community
 
 Here you can also find a list of tools and resources I used. 
 Some of the links are referral links, when you use them it is like supporting the channel :) 
