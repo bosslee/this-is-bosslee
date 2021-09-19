@@ -26,6 +26,7 @@ If my content gives you value, please consider supporting with the referral link
 6. Fastest way to get UST in and out with Kucoin. 🔗[Link](https://www.kucoin.com/ucenter/signup?rcode=rJXNXAW)
 
 **Resources**
+- [How to deposit and withdraw SDG from Binance Guide 2021](https://t.me/cryptowithbosslee/343)
 - [Binance SG vs Binance.com comparison table, which is better?](https://docs.google.com/spreadsheets/d/e/2PACX-1vQq2sZSFzJUiKF7_3HEx4ZbISGboc-VFllnrQCqhB1Pzp_E_SydolvK37eQJMYEDL__6ESk78g7x4QF/pubhtml)
 - [Blockfi vs Celcius Network vs Hodlnaut comparison table](https://docs.google.com/spreadsheets/d/e/2PACX-1vQq2sZSFzJUiKF7_3HEx4ZbISGboc-VFllnrQCqhB1Pzp_E_SydolvK37eQJMYEDL__6ESk78g7x4QF/pubhtml)
 - [Bitcoin prices correlation analysis](https://cryptowat.ch/correlations)
