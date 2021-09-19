@@ -16,17 +16,14 @@ I make crypto investing videos on Tiktok and YouTube
 - [Tiktok](https://www.tiktok.com/@bossleelah?): Sharing my journey on crypto investing 
 - [Telegram Channel](https://t.me/cryptowithbosslee): Your underground crypto community
 
-Here you can also find a list of tools and resources I used. 
-Some of the links are referral links, when you use them it is like supporting the channel :) 
-
-**Getting a trading account?**
-I use Binance and Kucoin
-- [Get 10% trading discount with Binance](https://accounts.binance.com/en/register?ref=OC76BXJD)
-- [Fastest way to get UST, AVAX is with Kucoin](https://www.kucoin.com/ucenter/signup?rcode=rJXNXAW)
-
-**Park and earn passive income?**
-I park my Bitcoin in Hodlnaut
-- [Get 7% on Bitcoin deposit](hodlnaut.com/join/nrMtk6hRZ)
+**How to support the channel?**
+If my content gives you value, please consider supporting with the referral links
+1. Get 10% in trading fees discount with Binance. 🔗[Link](https://accounts.binance.com/en/register?ref=OC76BXJD)
+2. Park your BTC with Hodlnaut and get 7.5%APY. 🔗[Link](https://app.hodlnaut.com/signup?r=nrMtk6hRZ)
+3. Use Tiger Broker for better USD exchange rate. 🔗[Link](https://www.tigerbrokers.com.sg/activity/forapp/welcome/?lang=en_US&invite=BOSSLEELAH)
+4. Cheapest way to buy BTC and SGD with SGD pair. Great for DCA. Get $10 of bitcoin when you sign up with Gemini. 🔗[Link](https://www.gemini.com/share/vge5pnwh8)
+1. Looking for the next $SOL, $FLOW or $MINA? Coinlist ensure a fair ICO so no whales can sweep everything. 🔗[Link](https://coinlist.co/clt?referral_code=MMEMQQ)
+6. Fastest way to get UST in and out with Kucoin. 🔗[Link](https://www.kucoin.com/ucenter/signup?rcode=rJXNXAW)
 
 **Resources**
 - [Binance SG vs Binance.com comparison table, which is better?](https://docs.google.com/spreadsheets/d/e/2PACX-1vQq2sZSFzJUiKF7_3HEx4ZbISGboc-VFllnrQCqhB1Pzp_E_SydolvK37eQJMYEDL__6ESk78g7x4QF/pubhtml)
